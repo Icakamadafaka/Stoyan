@@ -1,2 +1,2 @@
 # Stoyan
-https://icakamadafaka.github.io/Stoyan/
+https://iccooo.github.io/Stoyan/index.html
